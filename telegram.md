@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 01:42
+---
+
+## VahidOOnLine — post 239401
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239401_1778451154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی اعلام کرد دولت دونالد ترامپ از «همه ایده‌ها» برای کاهش قیمت بنزین استقبال می‌کند؛ از جمله تعلیق مالیات فدرال بر سوخت.
+
+این اظهارات در شرایطی مطرح شده که قیمت بنزین در آمریکا افزایش یافته و میانگین ملی آن روز یکشنبه به ۴.۵۲ دلار در هر گالن رسیده است.
+
+به گزارش ان‌بی‌سی، این رقم نشان می‌دهد بهای بنزین از زمان آغاز جنگ ایران در نهم اسفند بیش از ۵۰ درصد رشد کرده است.
+
+رایت در پاسخ به پرسشی درباره تعلیق مالیات فدرال بنزین، که حدود ۱۸ سنت در هر گالن است، گفت دولت از هر اقدامی که بتواند قیمت‌ها را در جایگاه‌های سوخت کاهش دهد و فشار بر مصرف‌کنندگان را کم کند، حمایت می‌کند.
+
+او همچنین درباره احتمال رسیدن قیمت‌ها به ۵ دلار در هر گالن از پیش‌بینی خودداری کرد و گفت تعیین قیمت انرژی در کوتاه‌مدت یا میان‌مدت دشوار است.
+
+رایت افزود تمرکز دولت بر پایان دادن به درگیری چند دهه‌ای با جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 10892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصطفی نجفی مشاور محسن رضایی: بعید است مذاکرات به نتیجه‌ای برسد، چراکه شکاف‌ها بسیار بزرگ است. ایران علی‌رغم آمادگی جنگی، راهبرد «نه جنگ» «نه تسلیم» را دنبال خواهد کرد
+@withyashar
+</div>
+
+## WithYashar — post 10891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهه نون باگت و خوشم اومد از این به بعد یادم باشه به موقع استفاده کنم🤣🤣
+</div>
+
+## WithYashar — post 10890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهه نون باگت و خوشم اومد از این به بعد یادم باشه به موقع استفاده کنم🤣🤣
+</div>
+
+## pm_afshaa — post 90509
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90509_1778451155.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: جمهوری اسلامی آخرین پیشنهاد آمریکا رو رد کرد و پیشنهاد متقابل خود را ارائه داد.
+
+تهران خواستار رفع تحریم‌ها، آزادسازی دارایی‌های مسدود شده ایران، جبران خسارات ناشی از جنگ و به رسمیت شناختن نقش ایران در تنگه هرمز شد، در حالی که آمریکا پاسخ رو «غیرقابل قبول» دانست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90508
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90508_1778451156.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی قلهکی، خبرنگار:
+ایران بر «پایانِ جنگ»، «رفع تحریم» و «رفعِ محاصره دریایی» متمرکز است ولی طرفِ مقابل حتما «400 کیلو اورانیوم» رو میخواد!
+
+از این پس باید منتظر نقطه ورود به تنش نظامی بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90507
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90507_1778451157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ به اکسیوس: با نتانیاهو درباره پاسخ ایران گفتوگو کردم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103499
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103499_1778451157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 دزفول توی جاده کمربندی سمت زیبا شهر ساعت ۹:۳۰ شب
+
+
+📞 دزفول از ساعت ۹و نیم صدای ضدهوایی و چند انفجار شنیده شد
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 336541
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336541_1778451159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی اعلام کرد دولت دونالد ترامپ از «همه ایده‌ها» برای کاهش قیمت بنزین استقبال می‌کند؛ از جمله تعلیق مالیات فدرال بر سوخت.
+
+این اظهارات در شرایطی مطرح شده که قیمت بنزین در آمریکا افزایش یافته و میانگین ملی آن روز یکشنبه به ۴.۵۲ دلار در هر گالن رسیده است.
+
+به گزارش ان‌بی‌سی، این رقم نشان می‌دهد بهای بنزین از زمان آغاز جنگ ایران در نهم اسفند بیش از ۵۰ درصد رشد کرده است.
+
+رایت در پاسخ به پرسشی درباره تعلیق مالیات فدرال بنزین، که حدود ۱۸ سنت در هر گالن است، گفت دولت از هر اقدامی که بتواند قیمت‌ها را در جایگاه‌های سوخت کاهش دهد و فشار بر مصرف‌کنندگان را کم کند، حمایت می‌کند.
+
+او همچنین درباره احتمال رسیدن قیمت‌ها به ۵ دلار در هر گالن از پیش‌بینی خودداری کرد و گفت تعیین قیمت انرژی در کوتاه‌مدت یا میان‌مدت دشوار است.
+
+رایت افزود تمرکز دولت بر پایان دادن به درگیری چند دهه‌ای با جمهوری اسلامی است.
+https://iranintl.com/202605106125
+</div>
+
+## FarsiVOA — post 217382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ: دیر یا زود اورانیوم غنی شدە را از ایران خارج می‌کنیم
+@FarsiVOA
+</div>
+
+## alonews — post 119174
+
+<div align="center">
+  <a href="telegram/content/alonews_119174_1778451160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما:
+ایران آخرین پیشنهاد آمریکا را رد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 01:32
 ---
 
