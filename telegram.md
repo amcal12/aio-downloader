@@ -7,6 +7,259 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 21:43
+---
+
+## VahidOOnLine — post 239361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهباز شریف، نخست‌وزیر پاکستان، روز یکشنبه حین سخنرانی در یک مراسم دولتی اعلام کرد جمهوری اسلامی پاسخ به پیشنهاد آمریکا برای پایان جنگ در منطقه را برای فیلد مارشال عاصم منیر ارسال کرده است.
+
+نخست‌وزیر پاکستان گفت: «امروز همین حالا، فیلد مارشال به من می‌گفت که پاسخ ایران دریافت شده است. من نمی‌توانم اینجا وارد جزئیات بیشتر شوم.»
+
+او همچنین از نقش مقام‌های پاکستانی در روند میانجیگری قدردانی کرد و افزود: «مایلم از تلاش‌های معاون نخست‌وزیر، اسحاق دار، تشکر و قدردانی کنم و به‌ویژه به فیلد مارشال سید عاصم منیر صمیمانه تبریک بگویم که شبانه‌روز خود را وقف این کار کرده است.»
+
+پیش از این سخنان رسانه‌ها به نقل از مقام‌های پاکستانی و رسانه رسمی دولت از ارسال پاسخ تهران به واشنگتن خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239360
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239360_1778436830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت جمهوری اسلامی ۴۷ سال است با آمریکا و جهان بازی می‌کند. برای ۴۷ سال آن‌ها ما را معطل نگه داشته‌اند و مردم ما را با بمب‌های کنار جاده‌ای کشته‌اند.
+او افزود: در اعتراضات اخیر ایران ۴۲ هزار معترض بی‌گناه و غیرمسلح کشته شده‌اند و جمهوری اسلامی به آمریکا که دوباره قدرتمند شده می‌خندد، اما دیگر نخواهند خندید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 10873
+
+<div align="center">
+  <img src="telegram/content/WithYashar_10873_1778436830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨🚨
+کاخ سفید هم پست ترامپ رو به اشتراک گذاشت و نوشت:
+
+آنها دیگر نخواهند خندید!
+@withyashar
+</div>
+
+## WithYashar — post 10872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهدید شدید ترامپ به ایران در تروث :
+
+ایران ۴۷ سال است که با ایالات متحده و بقیه جهان بازی کرده است — امروز و فردا کردن، تأخیر پشت تأخیر! — و سرانجام وقتی باراک حسین اوباما رئیس‌جمهور شد، به گنج رسید. او نه‌تنها با آنها خوب بود، بلکه فوق‌العاده رفتار کرد؛ عملاً به سمت آنها رفت، اسرائیل و همه متحدان دیگر را کنار گذاشت و به ایران یک فرصت تازه و بسیار قدرتمند برای ادامه حیات داد.
+
+صدها میلیارد دلار، به‌همراه ۱.۷ میلیارد دلار پول نقد، با هواپیما به تهران فرستاده شد و مانند هدیه‌ای آماده تقدیم آنها گردید. تمام بانک‌های واشنگتن دی‌سی، ویرجینیا و مریلند خالی شدند — آن‌قدر پول بود که وقتی رسید، اراذل و اوباش ایرانی نمی‌دانستند با آن چه کار کنند. آنها هرگز چنین پولی ندیده بودند و دیگر هم نخواهند دید.
+
+این پول‌ها در چمدان‌ها و کیف‌ها از هواپیما خارج شد و ایرانی‌ها از خوش‌شانسی خودشان شوکه شده بودند. آنها بالاخره بزرگ‌ترین ساده‌لوح تاریخ را پیدا کردند؛ در قالب یک رئیس‌جمهور ضعیف و احمق آمریکایی.
+
+او به‌عنوان «رهبر» ما یک فاجعه بود، هرچند نه به بدی جو بایدن خواب‌آلود!
+
+ایرانی‌ها ۴۷ سال است که ما را سر کار گذاشته‌اند، ما را منتظر نگه داشته‌اند، مردم ما را با بمب‌های کنار جاده‌ای کشته‌اند، اعتراضات را سرکوب کرده‌اند و اخیراً ۴۲ هزار معترض بی‌گناه و بی‌سلاح را از بین برده‌اند؛ و به کشوری که اکنون دوباره عظمت خود را به‌دست آورده می‌خندیدند.
+
+اما دیگر نخواهند خندید!
+@withyashar
+</div>
+
+## mwarmonitor — post 8838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شک نکنید بعد از خوندن جواب جمهوری اسلامی این متن نوشته
+</div>
+
+## VahidOnline — post 75386
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75386_1778436831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست تازه ترامپ پس از آن که جمهوری اسلامی گفت پاسخش را از طریق پاکستان ارسال کرده.
+ترجمه ماشین:
+
+ایران به مدت ۴۷ سال با ایالات متحده و بقیه جهان بازی کرده است؛ «تعویق، تعویق، تعویق!» و سرانجام وقتی باراک حسین اوباما رئیس‌جمهور شد، به گنج رسید. او نه‌تنها با آن‌ها خوب بود، بلکه عالی بود؛ عملاً به طرف آن‌ها رفت، اسرائیل و همه متحدان دیگر را کنار گذاشت و به ایران یک فرصت تازه، بزرگ و بسیار قدرتمند برای ادامه حیات داد.
+
+صدها میلیارد دلار، و ۱.۷ میلیارد دلار پول نقد سبز، که با هواپیما به تهران منتقل شد، مثل هدیه‌ای روی سینی نقره به آن‌ها داده شد. همه بانک‌ها در واشنگتن دی‌سی، ویرجینیا و مریلند خالی شدند. آن‌قدر پول بود که وقتی رسید، اراذل ایرانی نمی‌دانستند با آن چه کار کنند. آن‌ها هرگز چنین پولی ندیده بودند و دیگر هم هرگز نخواهند دید. پول‌ها در چمدان‌ها و کیف‌ها از هواپیما پایین آورده شد و ایرانی‌ها نمی‌توانستند خوش‌شانسی خود را باور کنند.
+
+آن‌ها بالاخره بزرگ‌ترین ساده‌لوحِ همه تاریخ را در قالب یک رئیس‌جمهور ضعیف و احمق آمریکایی پیدا کردند. او به‌عنوان «رهبر» ما یک فاجعه بود، اما نه به بدی جو بایدن خواب‌آلود!
+
+ایرانی‌ها ۴۷ سال ما را سر دوانده‌اند، ما را منتظر نگه داشته‌اند، مردم ما را با بمب‌های کنار جاده‌ای خود کشته‌اند، اعتراضات را نابود کرده‌اند، و اخیراً ۴۲ هزار معترض بی‌گناه و غیرمسلح را از بین برده‌اند و به کشور ما که اکنون دوباره بزرگ شده است، خندیده‌اند. دیگر نخواهند خندید!
+
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87332
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87332_1778436831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+
+رهبران آن‌ها رفته‌اند، تیم A رفته، تیم B رفته و احتمالاً تیم C رفته است
+
+ما با افرادی طرف هستیم که قدرتی خاص دارند. بسیار جالب است — آن‌ها توافق می‌کنند و سپس آن را نقض می‌کنند.
+ https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گزارش i24NEWS،
+رئیس‌جمهور ترامپ و نخست‌وزیر نتانیاهو تا یک ساعت آینده با یکدیگر گفت‌وگو خواهند کرد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87330
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87330_1778436832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاخ سفید تأکید می‌کند:
+آنها دیگر نخواهند خندید!
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336517
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336517_1778436833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران خبر دادند پس از مسعود پزشکیان، فرمانده قرارگاه مرکزی خاتم‌الانبیا نیز با مجتبی خامنه‌ای دیدار کرده است.
+
+همزمان وال‌استریت ژورنال گزارش داد جناح‌های تندرو که از روند مذاکرات با آمریکا ناراضی‌اند، خواستار اعلام موضع مستقیم رهبر جمهوری اسلامی هستند.
+
+گفت‌وگو با جابر رجبی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336516
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336516_1778436834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت جمهوری اسلامی ۴۷ سال است با آمریکا و جهان بازی می‌کند. برای ۴۷ سال آن‌ها ما را معطل نگه داشته‌اند و مردم ما را با بمب‌های کنار جاده‌ای کشته‌اند.
+او افزود: در اعتراضات اخیر ایران ۴۲ هزار معترض بی‌گناه و غیرمسلح کشته شده‌اند و جمهوری اسلامی به آمریکا که دوباره قدرتمند شده می‌خندد، اما دیگر نخواهند خندید.
+https://iranintl.com/202605100236
+</div>
+
+## Shin_Persian — post 5939
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_5939_1778436835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Sun, 10 May 2026 18:08:27 UTC President Trump @POTUS: "Iran has been playing games with the United States, and the rest of the World, for 47 years (DELAY, DELAY, DELAY!), and then finally hit “pay dirt” when Barack Hussein Obama became…
+</div>
+
+## Shin_Persian — post 5938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 18:08:27 UTC
+
+President Trump @POTUS:
+"Iran has been playing games with the United States, and the rest of the World, for 47 years (DELAY, DELAY, DELAY!), and then finally hit “pay dirt” when Barack Hussein Obama became President. He was not only good to them, he was great, actually going to their side, jettisoning Israel, and all other Allies, and giving Iran a major and very powerful new lease on life. Hundreds of Billions of Dollars, and 1.7 Billion Dollars in green cash, flown into Tehran, was handed to them on a silver platter. Every Bank in D.C., Virginia, and Maryland was emptied out — It was so much money that when it arrived, the Iranian Thugs had no idea what to do with it. They had never seen money like this, and never will again. It was taken off the plane in suitcases and satchels, and the Iranians couldn’t believe their luck. They finally found the greatest SUCKER of them all, in the form of a weak and stupid American President. He was a disaster as our “Leader,” but not as bad as Sleepy Joe Biden! For 47 years the Iranians have been “tapping” us along, keeping us waiting, killing our people with their roadside bombs, destroying protests, and recently wiping out 42,000 innocent, unarmed protestors, and laughing at our now GREAT AGAIN Country. They will be laughing no longer! President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«ایران به مدت ۴۷ سال در حال بازی دادن ایالات متحده و بقیه جهان بوده است (تأخیر، تأخیر، تأخیر!) و در نهایت زمانی که باراک حسین اوباما رئیس‌جمهور شد، به «گنج» دست یافتند. او نه تنها با آن‌ها خوب بود، بلکه عالی بود؛ در واقع به سمت آن‌ها رفت، اسرائیل و تمام متحدان دیگر را رها کرد و به ایران فرصت حیات مجدد، بزرگ و بسیار قدرتمندی بخشید. صدها میلیارد دلار، و ۱.۷ میلیارد دلار پول نقد سبز که به تهران پرواز داده شد، در سینی نقره به آن‌ها تقدیم گشت. تمام بانک‌ها در واشینگتن دی.سی، ویرجینیا و مریلند خالی شدند — آنقدر پول زیاد بود که وقتی رسید، اراذل و اوباش ایرانی هیچ ایده‌ای نداشتند با آن چه کنند. آن‌ها هرگز چنین پولی را ندیده بودند و دیگر هرگز نخواهند دید. پول‌ها با چمدان و کیف‌های دستی از هواپیما خارج شد و ایرانی‌ها نمی‌توانستند شانس خود را باور کنند. آن‌ها در نهایت بزرگ‌ترین «ساده‌لوح» تمام دوران را در قالب یک رئیس‌جمهور ضعیف و احمق آمریکایی پیدا کردند. او به عنوان «رهبر» ما یک فاجعه بود، اما نه به بدی جو بایدن خواب‌آلود! ۴۷ سال است که ایرانی‌ها ما را «معطل» کرده‌اند، ما را منتظر نگه داشته‌اند، مردم ما را با بمب‌های کنار جاده‌ای‌شان کشته‌اند، اعتراضات را سرکوب کرده‌اند و اخیراً ۴۲,۰۰۰ معترض بی‌گناه و غیرمسلح را نابود کرده‌اند و به کشور ما که اکنون «دوباره بزرگ شده»، خندیده‌اند. آن‌ها دیگر نخواهند خندید! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 18:04:25 UTC
+
+RUMINT:
+PM @netanyahu on an "urgent call" with @POTUS.
+
+فارسی
+
+شایعات:
+نخست‌وزیر نتانیاهو در یک «تماس اضطراری» با رئیس‌جمهور ایالات متحده (@POTUS).
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217363
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217363_1778436835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئيس جمهوری آمریکا روز یکشنبه در پیامی نوشت: «۴۷ سال است که ایرانی‌ها (مقامات جمهوری اسلامی) ما را سر می‌دوانند، معطل نگه می‌دارند، با بمب‌های کنار جاده‌ای مردم ما را می‌کشند، اعتراضات را سرکوب می‌کنند و اخیراً ۴۲ هزار معترض بی‌گناه و غیرمسلح را از بین برده‌اند، و به کشوری که اکنون دوباره عظمت یافته است می‌خندند. دیگر نخواهند خندید!»
+</div>
+
+## BBCPersian — post 280687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تحلیلگر هوش مصنوعی درباره دیپلماسی دیجیتال ایران در دوران جنگ: سواری گرفتن از الگوریتم، وقتی گارد مخاطب پایین است
+
+✍️پویا قربانی
+بی‌بی‌سی
+
+فعالیت سفارتخانه‌‌های ایران در شبکه اجتماعی ایکس در پی جنگ آمریکا و اسرائیل با ایران مورد توجه میلیون‌ها مخاطب غیر ایرانی و همچنین کارشناسان تبلیغات جنگ قرار گرفته است.
+
+این حساب‌ها که تا پیش از جنگ، اعلان‌های اداری برای شهروندان ایران و بیانیه‌‌های رسمی دیپلماتیک را بازنشر می‌‌کردند، در نبود دیگر صداهایی که در پی قطع اینترنت در ایران به بیرون راه نمی‌یابند، ناگهان جبهه‌ای گشودند که تا پیش از آن چندان از آن در جنگ نرم استفاده نشده بود.
+
+📲ادامه مطلب را در لینک زیر بخوانید🔽
+
+https://bbc.in/4f7SS1K
+@BBCPersian
+</div>
+
+## alonews — post 119127
+
+<div align="center">
+  <a href="telegram/content/alonews_119127_1778436836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارش های از فعالیت پدافند در دزفول ، شمال استان خوزستان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119126
+
+<div align="center">
+  <a href="telegram/content/alonews_119126_1778436836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید تأکید می‌کند:
+آنها دیگر نخواهند خندید!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 21:34
 ---
 
