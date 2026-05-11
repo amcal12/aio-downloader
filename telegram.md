@@ -7,6 +7,172 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 23:15
+---
+
+## pm_afshaa — post 90596
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90596_1778528747.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مدیرعامل آرامکو: جنگ ایران و بسته‌ موندن تنگه هرمز باعث شده که یک میلیارد بشکه نفت صادر نشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90595
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90595_1778528748.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمریکا تحریم‌های جدیدی علیه 3 فرد و 9 نهاد مرتبط با جمهوری اسلامی اعمال کرد؛ نهادهایی در هنگ‌کنگ، امارات و عمان.
+
+طبق این گزارش، محمدرضا اشرفی، صمد فتحی سلامی و احمد محمدی‌زاده به دلیل ارتباط با سپاه پاسداران تحریم شدن.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90593
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90593_1778528748.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان رادیو و تلویزیون اسرائیل:
+در ساعات اخیر بحث و رایزنی‌هایی با آمریکا درباره ازسرگیری جنگ علیه ایران در حال انجامه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 336701
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336701_1778528749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وخیم‌ترین اوضاع اقتصاد ایران بعد از قحطی جنگ جهانی
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+تماشای نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/r1t36aJQtRA
+@iranintltv
+</div>
+
+## IranIntlTV — post 336700
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336700" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: وخیم‌ترین اوضاع اقتصاد ایران بعد از قحطی جنگ جهانی
+@iranintlTV
+</div>
+
+## FarsiVOA — post 217477
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217477_1778528751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نازیلا گلستان در برنامه تفسیر خبر: آزادی زندانیان سیاسی باید به یک مطالبه ملی تبدیل شود
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 13945
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ۶۰ نماینده حزب کارگر خواستار کناره‌گیری استارمر شدند
+
+شبکه «اسکای‌نیوز» گزارش داد تاکنون ۶۰ نماینده حزب کارگر بریتانیا خواستار کناره‌گیری «کی یر استارمر» نخست‌وزیر این کشور شده‌اند.
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 280790
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_280790_1778528752.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز دوشنبه ۲۱ اردیبهشت ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## Hranews — post 112891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از قطع بیمه کارگران شهرداری ارومیه
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شماری از #کارگران شهرداری ارومیه از قطع بیمه درمانی خود خبر دادند. اداره تامین اجتماعی ارومیه به دلیل بدهی‌های مالی شهرداری به تامین اجتماعی، از تمدید اعتبار درمان این کارگرانی که نیازمند خدمات هستند، خودداری کرده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 119376
+
+<div align="center">
+  <a href="telegram/content/alonews_119376_1778528753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیدار معاون وزیر خارجه نروژ و سفیر فرانسه با غریب‌آبادی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119375
+
+<div align="center">
+  <a href="telegram/content/alonews_119375_1778528754.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسکای نیوز:اکنون ۶۰ نماینده حزب کارگر خواستار کناره‌گیری کیر استارمر شده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119374
+
+<div align="center">
+  <a href="telegram/content/alonews_119374_1778528754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شاه چارلز امسال رفت استیت ویزیت از آمریکا! چنین استقبالی از ایشون شد؟!
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 23:02
 ---
 
