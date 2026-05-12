@@ -7,6 +7,253 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 15:33
+---
+
+## VahidOOnLine — post 239688
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239688_1778587438.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مونترال‌ | کانادا؛ گردهمایی ایرانیان
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث لیزرها: بوم بوم… رفت هوا!!! @withyashar
+</div>
+
+## WithYashar — post 11054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پست جدید تروث، ترامپ طول جنگ‌های بزرگ آمریکا را مقایسه کرده: * جنگ افغانستان: ۵۴۳ هفته * جنگ عراق: ۴۵۷ هفته * جنگ ویتنام: ۴۳۹ هفته * جنگ جهانی دوم: ۱۹۶ هفته * گشت و گذار در ایران 😂 : ۶ هفته @withyashar
+</div>
+
+## WithYashar — post 11053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ در تروث : ۱۵۹ کشتی ایرانی در زمان باید و اوباما روی آب در زمان ترامپ کف دریا @withyashar
+</div>
+
+## mwarmonitor — post 8963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇨🇺🇺🇸ترامپ: «کوبا درخواست کمک کرده و ما قرار است گفت‌وگو کنیم.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 8962
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_8962_1778587440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دو هفته پیش، پس از آن‌که نفتکش M/T EUREKA هنگام عبور از Gulf of Aden توسط دزدان دریایی ناشناس ربوده شد، هشت ملوان مصری ربوده شدند.
+
+📌این نفتکش متعلق به شرکت مستقر در امارات Royal Shipping Lines است و تحت پرچم Togo تردد می‌کند. همچنین مالک و مدیر آن در امارات متحده عربی مستقر است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 8960
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 (رویترز) — قیمت نفت روز سه‌شنبه بیش از ۳ درصد افزایش یافت، زیرا اختلافات شدید میان آمریکا و ایران بر سر پیشنهادی برای پایان دادن به جنگ در خاورمیانه، نگرانی‌ها درباره عرضه را بار دیگر به کانون توجه بازگرداند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 341573
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341573_1778587441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: California mayor resigns after being charged with acting as an illegal agent of China.
+
+Eileen Wang has agreed to plead guilty as she faces up to 10 years in prison, according to federal prosecutors.
+
+They say she secretly worked to advance pro-Beijing messaging in the U.S., allegedly spreading propaganda tied to the Chinese government.
+</div>
+
+## pm_afshaa — post 90616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر آمریکا تو اسرائیل : ترامپ قبل از انتخابات پیشرو به اسرائیل سفر میکنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90615
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90615_1778587442.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلترشکن v2rayپرسرعت ‼️
+                                                    
+
+✅ مناسب برای تمام اینترنت‌ها (همراه اول ایرانسل رایتل اینترنت خانگی و ..)
+
+
+✅ قابل استفاده برای تمام سیستم عامل ها 
+
+😎 ضمانت بازگشت وجه در صورت عدم اتصال
+
+✅ پشتیبانی ۲۴ ساعته تا آخرین مدت اعتبار اشتراک   
+  
+
+😎 اشتراک 10 گیگ 😎
+
+✅ فقط و فقط 1/500/000 ✅
+
+👩‍💻 آیدی ثبت سفارش✨پشتیبانی #خریدوفروش : 👇
+@SuportSevenStarsVpn
+
+لینک ورود به کانال اصلی:
+            
+ https://t.me/sevenstars_VPN
+</div>
+
+## IranIntlTV — post 336807
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336807_1778587443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور کویت اعلام کرد چهار عضو وابسته به سپاه پاسداران انقلاب اسلامی را که از راه دریا به جزیره بوبیان در خاک این کشور نفوذ کرده بودند، بازداشت کرد. در جریان درگیری با این افراد نیز یک عضو نیروهای مسلح کویت زخمی شده است.
+جزییات بیشتر با تروسکه صادقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## ManotoTV — post 105344
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105344_1778587446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مونترال‌ | کانادا؛ گردهمایی ایرانیان
+</div>
+
+## FarsiVOA — post 217525
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217525_1778587448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورود گروهی از اوگاندا به جمع حامیان حکومت در تجمعات شبانه تهران؛
+
+ویدیوهای منتشر شده در شبکه‌های اجتماعی حاکی از ورود شماری از شیعیان اوگاندا به ایران و شرکت آنها در تجمعات شبانه حامیان حکومت در خیابان‌های تهران است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217524
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217524_1778587451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، تصویری از پرواز یک بمب‌افکن بی-۱ لنسر نیروی هوایی آمریکا بر فراز خاورمیانه در جریان یک ماموریت آموزشی را منتشر کرد. سنتکام اعلام کرد این پرواز روز ۹ مه انجام شد.
+
+@FarsiVOA
+</div>
+
+## Hranews — post 112900
+
+<div align="center">
+  <img src="telegram/content/Hranews_112900_1778587452.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز یکشنبه ۲۰ اردیبهشت‌ماه، شماری از اساتید اخراجی دانشگاه فرهنگیان در مقابل ساختمان های سازمان بازرسی کل کشور و وزارت آموزش و پرورش دست به #تجمع اعتراضی زدند.
+
+این اساتید نسبت به اخراج بیش از ۳۰۰ عضو هیئت علمی دانشگاه و قطع حدود ۱۰ ماه از حقوق و مزایای‌شان اعتراض کرده و خواستار رسیدگی به مطالبات خود و عزل رئیس دانشگاه فرهنگیان شدند.
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 105344
+
+<div align="center">
+  <a href="telegram/content/manototv_105344_1778587453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مونترال‌ | کانادا؛ گردهمایی ایرانیان
+</div>
+
+## alonews — post 119484
+
+<div align="center">
+  <a href="telegram/content/alonews_119484_1778587457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به بازنشر تصاویر تولیدشده توسط هوش مصنوعی مرتبط با ایران ادامه می‌دهد.
+
+
+🔴او قبلاً همین تصاویر را منتشر کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119483
+
+<div align="center">
+  <a href="telegram/content/alonews_119483_1778587458.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت جدید ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119482
+
+<div align="center">
+  <a href="telegram/content/alonews_119482_1778587458.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ از طریق Truth Social:
+هیچ جمهوری‌خواهی تاکنون درباره کوبا با من صحبت نکرده است، کشوری شکست‌خورده که فقط در یک جهت حرکت می‌کند - به سمت پایین!
+
+
+🔴کوبا درخواست کمک می‌کند و ما قرار است صحبت کنیم!!!
+
+
+🔴در این میان، من به چین می‌روم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 15:23
 ---
 
